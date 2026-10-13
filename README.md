@@ -6,7 +6,7 @@ Welcome to our official website! Here you can find information about our ministr
 ROYAL PRIESTHOOD ASSEMBLIES INTERNATIONAL, Lusaka, Zambia
 
 ## Contact
-- Phone: 0973935674, 09633419998
+- Phone/WhatsApp: +260 767 716 936
 - Email: royalpriesthoodassembliesintl@gmail.com
 
 ---
